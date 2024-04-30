@@ -1,1 +1,1 @@
-Gameы installation
+Games installation
